@@ -1,2 +1,2 @@
 # starpetworld
-This website is for all breeds of CAT's for sale and it's food!!!
+This website motto is,user can buy all different types of cat breeds and thier food. The user can buy happily take home:)) with #joy!!.
